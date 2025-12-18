@@ -1,1 +1,0 @@
-# CAARE-2026-All-Quarters-Hackathon-Guide
